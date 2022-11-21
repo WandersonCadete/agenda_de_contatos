@@ -6,12 +6,12 @@ Professor: Marcio Araya
 
 Membros do Grupo:
 
-Carol M.
+Carol M Cunha 
 
-Pedro
+Pedro Henrique Nogueira
 
 Salomão Morais
 
-Thaillon
+Thaillon Pedreira 
 
 Wanderson Aparecido Castelo Cadete
